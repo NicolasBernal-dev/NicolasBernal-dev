@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on proyects related to Data Analitics
 - 📫 How to reach me: Juannicolasbernal_001@hotmail.com
 - 😄 Pronouns: None
-- ⚡ Fun fact: I love play shooting videogames with my friends online 
+- ⚡ Fun fact: Shooting videogames with my friends online is synonym to Rage 
 
 <!---
 NicolasBernal-dev/NicolasBernal-dev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
